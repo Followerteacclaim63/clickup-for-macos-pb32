@@ -1,4 +1,4 @@
-#  
+#  ClickUp for macOS updated Addon - cloud backup and quick search offers the most advanced ClickUp for macOS addon, with cloud backup and quick search. Ideal for professionals.
 
 
 
